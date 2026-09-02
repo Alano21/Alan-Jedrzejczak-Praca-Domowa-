@@ -1,0 +1,1 @@
+# Alan-Jedrzejczak-Praca-Domowa-
